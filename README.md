@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @nirmal-71
 - 👀 I’m interested in ...developing my bskills
 - 🌱 I’m currently learning ...python sql  excel java
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...my love
 - 📫 How to reach me ...my gmail :jnirmal.2020@gmail.com
 - 😄 Pronouns: ... never ever give up
 - ⚡ Fun fact: ...123456789
